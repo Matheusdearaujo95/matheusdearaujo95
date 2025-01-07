@@ -1,6 +1,6 @@
 ## Olá, eu sou o Matheus!
 
-🔍 Analista de Qualidade em Formação    
+🔍 Analista de Qualidade    
 
 🎓 Bootcamp TripleTen Brasil    
 
